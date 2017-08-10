@@ -1,2 +1,3 @@
 # Hello-World
 My first ever project on GitHub!
+Even at almost 70 yrs old. I Ijambo Andrew affirms that new projects are not just possible but highly viable - in the knowledge era and economy...
